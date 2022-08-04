@@ -17,4 +17,5 @@ https://mixkit.co/free-sound-effects/game/?page=2
 
 Cyberpunk Computer Game | IDRA by Alex-Productions | https://www.youtube.com/channel/UCx0_M61F81Nfb-BRXE-SeVA Music promoted by https://www.chosic.com/free-music/all/ Creative Commons CC BY 3.0 https://creativecommons.org/licenses/by/3.0/
 
-![image](https://user-images.githubusercontent.com/97506616/182751280-878b33cf-d131-4739-ad2b-8da3df4b9205.png)
+
+![image](https://user-images.githubusercontent.com/97506616/182751421-2eb3b163-b8b7-49e2-9afb-0e6a2068c39b.png)
